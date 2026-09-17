@@ -19,7 +19,7 @@ Actualmente me enfoco en aplicar lo que aprendo en la facultad a situaciones rea
 ---
 
 ### 🌐 Conectemos
-* **LinkedIn:** [Thiago Lionel Gonzalez](https://www.linkedin.com/in/thiago-lionel-gonzalez-a07752331)
+* **LinkedIn:** [Thiago Lionel Gonzalez](https://www.linkedin.com/in/thiagolionelgonzalez/)
 * **Instagram personal:** [@thiago.lionel1](https://www.instagram.com/thiago.lionel1/)
 * **Instagram del proyecto:** [@rockandroller.ok](https://www.instagram.com/rockandroller.ok/)
 * **Email:** thiagolionel.sistemas@gmail.com
