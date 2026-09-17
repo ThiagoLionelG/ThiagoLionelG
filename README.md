@@ -1,4 +1,4 @@
-# ¡Hola! Soy Thiago 👋
+# ¡Hola! Soy Thiago 👋 
 
 Estudiante de **Ingeniería en Sistemas de Información (2.° año) en la UTN FRBA** (Buenos Aires, Argentina).
 
